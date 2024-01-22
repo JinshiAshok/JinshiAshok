@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **jinshin4848@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/19ygY9mTiS9_t6UbdvTcR1kEm3IDL0JL4/view?usp=drivesdk](https://drive.google.com/file/d/19ygY9mTiS9_t6UbdvTcR1kEm3IDL0JL4/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/19ygY9mTiS9_t6UbdvTcR1kEm3IDL0JL4/view?usp=drivesdk](https://drive.google.com/file/d/10TMGnxLea26UkX9W4euJuWpAFnx3XF2T/view?usp=sharing)
 
 - ⚡ Fun fact **i am funny**
 
